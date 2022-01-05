@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @AirdropSharer
+- 👀 I’m interested in digital world
+- 🌱 I’m currently learning about all usefull things
+- 💞️ I’m looking to collaborate on blockchain
